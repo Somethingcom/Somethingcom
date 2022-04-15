@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Somethingcom
 - 👀 I’m interested in .. Lots of art and intersting things I also LOVE music :)
 - 🌱 I’m currently learning ...things.
-- 💞️ I’m looking to collaborate on ...E-schoolllll
+- 💞️ I’m looking to collaborate on ...nonya beeswax
 - 📫 How to reach me ...what
 
 <!---
